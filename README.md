@@ -2,4 +2,4 @@
 
 ## 👩🏻‍💻 Desenvolvedoras
 -  [Maria Victória](https://github.com/vihhllopes) 🦋 
--  [Willinny Karla] (https://github.com/willinny) ✨
+-  [Willinny Lima] (https://github.com/willinnylima) ✨
